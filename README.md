@@ -1,2 +1,0 @@
-# King-technical-
-King technical 
